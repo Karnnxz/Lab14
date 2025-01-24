@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME: Getmani Treeyut
+# STUDENT ID: 670610746
