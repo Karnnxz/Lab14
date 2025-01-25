@@ -1,2 +1,2 @@
-# NAME: Getmani Treeyut
+# NAME: นางสาวเก็จมณี ตรียุทธ
 # STUDENT ID: 670610746
